@@ -2,4 +2,4 @@
 Бебараа
 change by yakov
 iamthemoon(thendont)
-bara bara bara bere bere bere. @Nick was here@
+@bara bara bara bere bere bere. Nick was here@
